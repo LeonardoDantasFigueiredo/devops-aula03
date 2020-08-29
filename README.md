@@ -1,3 +1,3 @@
 Charlie Chaplin  
-Will Smith
+Will Smith  
 Charlize Theron
